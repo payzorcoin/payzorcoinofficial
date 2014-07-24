@@ -1,0 +1,2 @@
+
+PayzorCoin - PZR
